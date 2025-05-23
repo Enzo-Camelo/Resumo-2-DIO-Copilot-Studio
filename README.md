@@ -1,0 +1,1 @@
+# Resumo-2-DIO-Copilot-Studio
